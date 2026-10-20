@@ -1,0 +1,2 @@
+# premium-arabic-cal-001-arabic-calligraphy-naskh-syste
+Tired of inconsistent practice and slow progress in mastering the Naskh script? The Arabic Calligraphy Naskh System turns your chaos into a structured, trackable journey.  This Notion template provides a complete system for deliberate practice, progress tracking, and resource management, tailored specifically for Naskh calligraphy. It eliminates th
